@@ -1,0 +1,2 @@
+# Irtiqa-
+About study planner 
